@@ -1,0 +1,3 @@
+nohut
+zeytin yagi
+tuz
